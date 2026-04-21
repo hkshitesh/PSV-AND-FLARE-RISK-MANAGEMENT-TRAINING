@@ -17,3 +17,7 @@
 ## One Drive Link
 
 https://gusindia01-my.sharepoint.com/:f:/g/personal/hksharma_ddn_upes_ac_in/IgBhdnlBu96eTZ68cMdDMINRAVa8G3KaI2kDCszzvjNl9pE?e=VZwfDZ
+
+## QUIZ-3 Leadboard
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/36879741-e0a0-4976-8fec-59b820d03b17" />
