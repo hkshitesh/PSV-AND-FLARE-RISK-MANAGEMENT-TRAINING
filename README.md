@@ -35,6 +35,12 @@ https://gusindia01-my.sharepoint.com/:f:/g/personal/hksharma_ddn_upes_ac_in/IgBh
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/41f30227-2177-480a-8a67-782ef185483f" />
 
+## MID-COURSE FEEDBACK LINK
+
+https://forms.gle/h5Qa8YZzC51DLSmq8
+
+
+
 
 
 
