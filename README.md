@@ -22,6 +22,13 @@ https://gusindia01-my.sharepoint.com/:f:/g/personal/hksharma_ddn_upes_ac_in/IgBh
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/36879741-e0a0-4976-8fec-59b820d03b17" />
 
+## QUIZ-6 Leadbaord
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/f1e8c791-4ab2-4c25-b07c-69b2174fbce2" />
+
+
+
+
 ## QUIZ-4 Leadboard
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/837eeb5d-710a-4e86-9392-adb1812270bd" />
