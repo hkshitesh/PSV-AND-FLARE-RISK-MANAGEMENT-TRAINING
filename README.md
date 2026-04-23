@@ -39,6 +39,11 @@ https://gusindia01-my.sharepoint.com/:f:/g/personal/hksharma_ddn_upes_ac_in/IgBh
 
 https://forms.gle/h5Qa8YZzC51DLSmq8
 
+## QUIZ 11 Leadboard
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/3c8aec9d-f1af-4fda-b823-03a37da1f96f" />
+
+
 
 
 
