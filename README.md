@@ -47,6 +47,11 @@ https://forms.gle/h5Qa8YZzC51DLSmq8
 
 <img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/4abbf7c4-9023-43a6-8b4d-507330851d78" />
 
+## QUIZ 13 Leadboard
+
+<img width="1366" height="768" alt="image" src="https://github.com/user-attachments/assets/ef78d303-e111-46f0-b787-141e6533c42c" />
+
+
 
 
 
