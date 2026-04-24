@@ -56,6 +56,11 @@ https://forms.gle/h5Qa8YZzC51DLSmq8
 https://forms.cloud.microsoft/r/pwDsK81arH
 
 
+## RAG LINK
+
+https://colab.research.google.com/drive/1Bl-N77c3la87VObG6-vGRVLDx15L-wnu?usp=sharing
+
+
 
 
 
